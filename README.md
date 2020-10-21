@@ -1,4 +1,4 @@
 # amazon personel files  #
 
 
-Burdaki kodlara bakmayın bu arada sadece kişisel ortak hesapta olanlara bakın ben burayı düzenlersem bakarsınız !!
+Burdaki kodlara bakmayın...    düzenlediğimiz ortak yapılara bakın burası eğlence parkı 
